@@ -1,0 +1,13 @@
+OBJETIVOS
+
+MARCO TEORICO (RESUMEN)
+
+EXPLICACIÓN Y RESOLUCIÓN DE EJERCICIOS O PROBLEMAS
+
+VIDEO
+
+CONCLUSIONES
+
+BIBLIOGRAFÍA
+
+Floyd, Thomas L. (2007). Principios de circuitos eléctricos. Pearson Educacion.
